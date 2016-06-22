@@ -1,1 +1,1 @@
-# youresopretty
+# youresoprettyrc
